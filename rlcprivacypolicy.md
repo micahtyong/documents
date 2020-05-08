@@ -1,4 +1,4 @@
-**Privacy Policy for Rescuing Leftover Cuisine's Mobile Component.**
+# Privacy Policy for Rescuing Leftover Cuisine's Mobile Component.
 
 **Privacy Policy**
 
